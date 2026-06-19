@@ -6,7 +6,7 @@ I am going to work on this project for new next days.
 I am learning Git and Github for very first time. 
 my name krishna singh.
 
+Currently I am taking a new batch.
 
-my name is Sidd.
-I am ashish Khurana.
 
+we are eating 
